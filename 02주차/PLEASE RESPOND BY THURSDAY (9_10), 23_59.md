@@ -1,0 +1,3 @@
+# PLEASE RESPOND BY THURSDAY (9/10), 23:59
+
+Please introduce yourself by answering the following questions in a brief response: Class Overview & Interests Why did you enroll in this class? What is your major and which school or department are you from? What is your favorite Roblox game, and why? Personality Tests Please complete the following two tests and share your results: Teto-Egen Test Roblox Personality Test Quick Questionnaire Are you a night owl? What time do you usually go to bed? Are you a beginner, or do you have prior experience playing Roblox? Did you learn any basic coding during high school or college? How far do you live from campus? If the elevator is full and someone is running to catch it, do you hold the door or press the close button?

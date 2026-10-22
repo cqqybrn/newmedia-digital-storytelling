@@ -1,0 +1,3 @@
+# ZOOM LINK FOR 10/16 FIRST ROBLOX LECTURE WITH LUNATONE
+
+Theodore Yoo is inviting you to a scheduled Zoom meeting. Topic: 1st LECTURE_LUNATONE_ROBLOX Time: Oct 16, 2026 10:00 AM Seoul Join Zoom Meeting https://yonsei.zoom.us/j/88099222628?pwd=8cAkhL1JhWlHDgU69Iyi5t0QJaSGo1.1 Join and take notes https://yonsei.zoom.us/j/88099222628?pwd=8cAkhL1JhWlHDgU69Iyi5t0QJaSGo1.1&mynotes=on Meeting chat link https://yonsei.zoom.us/launch/jc/88099222628 Meeting ID: 880 9922 2628 Passcode: 438152 --- Join by SIP • 88099222628@zoomcrc.com Passcode: 438152 Join instructions https://yonsei.zoom.us/meetings/88099222628/invitations?signature=xeDsf6z5ZGsIly73Nwum3DbMXT4s33IYUG1jRjx58yw

@@ -1,0 +1,3 @@
+# 2nd ZOOM lecture_LunaTone
+
+Theodore Yoo is inviting you to a scheduled Zoom meeting. Topic: 2nd ZOOM LECTURE WITH LUNATONE Time: Oct 30, 2026 10:00 AM Seoul Join Zoom Meeting https://yonsei.zoom.us/j/83142744108?pwd=GSC3XWh73BWAh9ufsfHXrgriJP0zZe.1 Join and take notes https://yonsei.zoom.us/j/83142744108?pwd=GSC3XWh73BWAh9ufsfHXrgriJP0zZe.1&mynotes=on Meeting chat link https://yonsei.zoom.us/launch/jc/83142744108 Meeting ID: 831 4274 4108 Passcode: 784599 --- Join by SIP • 83142744108@zoomcrc.com Passcode: 784599 Join instructions https://yonsei.zoom.us/meetings/83142744108/invitations?signature=o-zQqHKRAZ8pVidm10M7j3_XqYMmmeeeVi1FADxhXu8
